@@ -2,7 +2,7 @@
 
 <h1 align="center">〝SKILIPA_BOTV6✨〞<br></h1>
 <p align="center">
-<img src="https://telegra.ph/file/86f4d8e6bfb7ba044994f.jpg" alt="animated" width="500" height="300" />
+<img src="https://scalebranding.com/product/50037/" alt="animated" width="500" height="300" />
 </p>
 
 <p align="center">
