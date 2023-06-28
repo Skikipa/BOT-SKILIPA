@@ -2,7 +2,7 @@
 
 <h1 align="center">〝SKILIPA_BOTV6✨〞<br></h1>
 <p align="center">
-<img src="https://scalebranding.com/product/50037/" alt="animated" width="500" height="300" />
+<img src="https://postimg.cc/xc32HXSC" alt="animated" width="500" height="300" />
 </p>
 
 <p align="center">
